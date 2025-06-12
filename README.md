@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on open-source projects, coding challenges, and tech-related research.
 
-📫 How to reach me: You can reach me via email at lemthaik6@example.com or on GitHub.
+📫 How to reach me: You can reach me via email at lemthai1808@gmail.com or on GitHub.
 
 😄 Pronouns: He/Him
 
